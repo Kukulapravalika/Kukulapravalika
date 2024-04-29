@@ -9,3 +9,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: 
 - ⚡ Fun fact: I Love to sell chicken button and liver
 
+- CHICKEN PRICE - 3500/-
+- MUTTION BIRYANI - 4550/-
+- DAL RICE 150/-
+- BOTTI RICE 4500/-
+
